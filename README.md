@@ -1,1 +1,1 @@
-# Yake-Bot
+#YakeBot Privacy Policy
